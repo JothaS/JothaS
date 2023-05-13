@@ -1,5 +1,8 @@
 ## Hola Mundo! Soy Juan Eduardo San Martín ( Alias Jotha) 👋
 
+
+![image](https://github.com/JothaS/JothaS/assets/128651083/51feb523-5f7a-497d-bf8e-321d214e765d)
+
 Especialista en servicio al cliente con amplia trayectoria en el área bancaria.
 Actualmente, enfocado en el desarrollo de habilidades en el campo de la
 programación, curso un Bootcamp de Desarrollo de Aplicaciones Full Stack
