@@ -7,3 +7,4 @@ JavaScript. Siempre comprometido en brindar una excelente calidad de servicio, e
 cualquier área en la que me desempeñe. 
 
 
+![image](https://github.com/JothaS/JothaS/assets/128651083/b389ca03-1242-4b22-95ee-b5aee26fdd4c)
