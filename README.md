@@ -14,8 +14,7 @@ cualquier área en la que me desempeñe.
 
 
 
-![image](https://github.com/JothaS/JothaS/assets/128651083/dbe98e0e-fe5b-4aef-8fef-ba5e462c84c7)     https://www.linkedin.com/in/jesan
-martin
+![image](https://github.com/JothaS/JothaS/assets/128651083/dbe98e0e-fe5b-4aef-8fef-ba5e462c84c7)     https://www.linkedin.com/in/jesanmartin
 
 
 
